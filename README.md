@@ -1,3 +1,3 @@
-# mimobett.github.io
+# nataliebett.com
 
-My personal website.
+Coming soon.
